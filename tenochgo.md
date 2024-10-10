@@ -18,3 +18,5 @@ Whiskers had many friends in the village, including a kind-hearted dog named Max
 
 ## Conclusion
 Whiskers lived a happy and fulfilling life, always seeking new adventures and cherishing the friendships he made along the way. His story reminds us of the joy of exploration and the importance of companionship.
+
+CAT
